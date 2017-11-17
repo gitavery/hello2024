@@ -8,17 +8,17 @@ Just wanting say I  am happy to be here today. I hope all you humans are blessed
 # shopping
 What`s the deal? How do it work? So on and so on. Just doing some testing and trying out different things. In the mean time search and compare shopping sales online. I like to here some of your ideas.
 
-[Winter Sale coupon! $15 OFF $150 site-wide code: WINTER10LITB (10/15-12/31)](http://www.dpbolvw.net/click-3813210-12348979-1442973600000)
+[Instant streaming videos and music](https://www.amazon.com/gp/prime/pipeline/prime_gifting_landing?ref_=assoc_tag_ph_1415183446617&_encoding=UTF8&camp=1789&creative=9325&linkCode=pf4&tag=tritmamoon-20&linkId=2ed627f40e0acb8f98e4f43a15c7abe2)
 
-[Affiliate Exclusive - $6.99 + Free Shipping on WIDELY USED Car Kit MP3 Player FM Transmitter LCD Backlight Display Remote Control USB SD MMC Slot](http://www.kqzyfj.com/click-3813210-12433946-1449000807000)
+[Two free books special just for the holiday](https://www.amazon.com/Audible-Free-Trial-Digital-Membership/dp/B00NB86OYE/?ref_=assoc_tag_ph_1485906643682&_encoding=UTF8&camp=1789&creative=9325&linkCode=pf4&tag=tritmamoon-20&linkId=166e2c7a9904ce1d48045fef3be64858)
 
-[Affiliate Exclusive - $3.99 + Free Shipping on Inear Headphone for Smartphone iPhone Samsung with coupon code: AAAA valid until 12/31](http://www.dpbolvw.net/click-3813210-12433944-1449000742000)
+[What? need something to read e books with](https://www.amazon.com/gp/kindle/ku/sign-up?ie=UTF8&*Version*=1&*entries*=0&ref_=assoc_tag_ph_1454291293420&_encoding=UTF8&camp=1789&creative=9325&linkCode=pf4&tag=tritmamoon-20&linkId=4d0b03a63e18d98953903ebadf912000)
 
-[Hand-painted Wall Art, Prints, Wall Stickers, Wall Clocks and Frames upto 70% OFF + $15 OFF $150 with coupon: WINTER10LITB valid until 12/31] (http://www.dpbolvw.net/click-3813210-12433940-1449000570000)
+[How about a reading app that would be nice this winter season] (https://www.amazon.com/associates/AppDownload?program=1&ref_=assoc_tag_ph_1402131685749&_encoding=UTF8&camp=1789&creative=9325&linkCode=pf4&tag=tritmamoon-20&linkId=d6b37866878ea6b4ba89d5c092aac62a)
 
-[Cheap Real Human Hair and Synthetic Wigs & Hair Extensions from as low as $0.30 a piece! - Save $10 on orders over $90 with coupon: HOLIDAY0OFF until 12/25] (http://www.kqzyfj.com/click-3813210-12433937-1449000414000)
+[I just love the baby in new outfits this winter season] (https://www.amazon.com/gp/baby/homepage?ref_=assoc_tag_ph_1402131859555&_encoding=UTF8&camp=1789&creative=9325&linkCode=pf4&tag=tritmamoon-20&linkId=ba9755c6b5d9d3609b9e313fd48234f5)
 
 [Holiday Party dresses from $29.99 + Custom size available & $10 OFF $90 with coupon: HOLIDAY0OFF valid until 12/25](http://www.dpbolvw.net/click-3813210-12433934-1449000360000)
 
-[Save up to 60% on selected Christmas Decorations](http://www.tkqlhce.com/click-1-5590799?url=http://www.argos.co.uk/static/Search/searchTerm/SHOP%2BFOR%2BFANTASTIC%2BOFFERS%2BON%2BCHRISTMAS%2BDECS.htm)
+[Prime deals online](https://www.amazon.com/tryprimefree?ref_=assoc_tag_ph_1427739975520&_encoding=UTF8&camp=1789&creative=9325&linkCode=pf4&tag=tritmamoon-20&linkId=2990d0310593acf2c77346a2e0db0650)
 
