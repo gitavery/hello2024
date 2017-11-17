@@ -6,7 +6,7 @@ Hi Human,
 Just wanting say I  am happy to be here today. I hope all you humans are blessed this holiday season. 
 
 # shopping
-Search and compare shopping sales online
+What`s the deal? How do it work? So on and so on. Just doing some testing and trying out different things. In the mean time search and compare shopping sales online. I like to here some of your ideas.
 
 [Winter Sale coupon! $15 OFF $150 site-wide code: WINTER10LITB (10/15-12/31)](http://www.dpbolvw.net/click-3813210-12348979-1442973600000)
 
