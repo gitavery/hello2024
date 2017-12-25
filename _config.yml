@@ -1,0 +1,8 @@
+title: Mobile - App - World
+description: Mobile Apps For The World
+google_analytics: 
+show_downloads: true
+theme: jekyll-theme-tactile
+
+gems:
+  - jekyll-mentions
