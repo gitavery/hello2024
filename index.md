@@ -5,7 +5,7 @@
 
 [Get Surfshark VPN subscrption right away and surf the internet safely. ](https://www.jdoqocy.com/click-101223348-15438560)
 
-[Revup Your Brain The Genius Wave](https://75c64oemj47b0kf0laml7w0k44.hop.clickbank.net)
+[Rev-up Your Brain The Genius Wave](https://75c64oemj47b0kf0laml7w0k44.hop.clickbank.net)
 
 
 
