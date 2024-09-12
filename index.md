@@ -1,11 +1,9 @@
+### Welcome to GitHub Pages. 
+[50 Free Wood working Blueprint Plans](https://hop.clickbank.net/?affiliate=tatabug&vendor=tedsplans&cbpage=optin)
+
 [His Secret Obsessions](https://5ab22qmqn0zdcpa1ng6arjnheo.hop.clickbank.net)
 
 [Get Surfshark VPN subscrption right away and surf the internet safely. ](https://www.jdoqocy.com/click-101223348-15438560)
-
-
-
-### Welcome to GitHub Pages. 
-[50 Free Wood working Blueprint Plans](https://hop.clickbank.net/?affiliate=tatabug&vendor=tedsplans&cbpage=optin)
 
 
 
