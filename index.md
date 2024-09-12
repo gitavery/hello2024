@@ -12,7 +12,7 @@
 <p </p>
 
 ### Welcome to GitHub Mobile App World Pages. 
-Google and Apple are not only taking control of the game, but they're changing the gaming field, forcing other players to constantly and completely reinvent its game plan in this area. The Apple iPhones and Google Androids apps in smartphone industry are the best.[Money making apps](http://tatabug.mymobilemp.hop.clickbank.net).
+Google and Apple are not only taking control of the game, but they're changing the gaming field, forcing other players to constantly and completely reinvent its game plan in this area. The Apple iPhones and Google Androids apps in smartphone industry are the best [Money making apps](http://tatabug.mymobilemp.hop.clickbank.net).
 
 
 ### Designer Templates
