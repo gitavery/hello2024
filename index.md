@@ -1,5 +1,5 @@
 ### Welcome to GitHub Pages. 
-[50 Free Wood working Blueprint Plans](https://hop.clickbank.net/?affiliate=tatabug&vendor=tedsplans&cbpage=optin)
+[50 Free Wood Working Blueprint Plans](https://hop.clickbank.net/?affiliate=tatabug&vendor=tedsplans&cbpage=optin)
 
 [His Secret Obsessions](https://5ab22qmqn0zdcpa1ng6arjnheo.hop.clickbank.net)
 
