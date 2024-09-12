@@ -1,5 +1,4 @@
-[Make money with iPhones and Android apps](http://tatabug.mymobilemp.hop.clickbank.net
-)
+[His Secret Obsessions](https://5ab22qmqn0zdcpa1ng6arjnheo.hop.clickbank.net)
 
 [Get Surfshark VPN subscrption right away and surf the internet safely. ](https://www.jdoqocy.com/click-101223348-15438560)
 
@@ -12,7 +11,7 @@
 <p </p>
 
 ### Welcome to GitHub Mobile App World Pages. 
-Google and Apple are not only taking control of the game, but they're changing the gaming field, forcing other players to constantly and completely reinvent its game plan in this area. The Apple iPhones and Google Androids apps in smartphone industry are the best [money making apps](http://tatabug.mymobilemp.hop.clickbank.net).
+Google and Apple are not only taking control of the game, but they're changing the gaming field, forcing other players to constantly and completely reinvent its game plan in this area. The Apple iPhones and Google Androids apps in smartphone industry are the best []().
 
 
 ### Designer Templates
