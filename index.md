@@ -2,13 +2,13 @@
 
 [Get Surfshark VPN subscrption right away and surf the internet safely. ](https://www.jdoqocy.com/click-101223348-15438560)
 
-<p </p>
+
 
 ### Welcome to GitHub Pages. 
 [50 Free Wood working Blueprint Plans](https://hop.clickbank.net/?affiliate=tatabug&vendor=tedsplans&cbpage=optin)
 
 
-<p </p>
+
 
 ### Welcome to GitHub Mobile App World Pages. 
 Google and Apple are not only taking control of the game, but they're changing the gaming field, forcing other players to constantly and completely reinvent its game plan in this area. The Apple iPhones and Google Androids apps in smartphone industry are the best []().
