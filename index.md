@@ -1,11 +1,11 @@
 ### Welcome to GitHub Pages. 
-[50 Free Wood Working Blueprint Plans](https://hop.clickbank.net/?affiliate=tatabug&vendor=tedsplans&cbpage=optin)
+[Laptop Plans](https://a.co/d/09SVxNqR)
 
-[His Secret Obsessions](https://5ab22qmqn0zdcpa1ng6arjnheo.hop.clickbank.net)
+[Gifts under $100](https://a.co/d/018uIR7F)
 
 [Get Surfshark VPN subscrption right away and surf the internet safely. ](https://www.jdoqocy.com/click-101223348-15438560)
 
-[Rev-up Your Brain The Genius Wave](https://75c64oemj47b0kf0laml7w0k44.hop.clickbank.net)
+[Rev-up Your Brain with these Tech essentials](https://a.co/d/0asTa4da)
 
 
 
