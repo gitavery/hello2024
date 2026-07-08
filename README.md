@@ -3,5 +3,5 @@ Hello and Welcome World
 
 Hi Human,
 
-Just wanting say I  am happy to be here today. I hope all you humans are blessed this holiday season. 
+Just wanting say I am happy to be here today. I hope all you humans are blessed this holiday season. This is a simple deployment to my github-pages
 
