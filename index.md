@@ -1,11 +1,13 @@
 ### Welcome to GitHub Pages. 
+[Comfortable fashion clothing and stylish picks for everyone.](https://amzn.to/3RvNGeP)
+
 [Laptop Plans](https://a.co/d/09SVxNqR)
 
 [Gifts under $100](https://a.co/d/018uIR7F)
 
 [Top picks for audio lovers: find your perfect pair of headphones!](https://amzn.to/4xCW1Nt)
 
-[Rev-up Your Brain with these Tech essentials](https://a.co/d/0asTa4da)
+[Rev up Your Brain with these Tech essentials](https://a.co/d/0asTa4da)
 
 [Essential Nikon gear for photography enthusiasts.](https://amzn.to/4xmn5R8)
 
